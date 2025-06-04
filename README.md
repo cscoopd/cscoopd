@@ -9,7 +9,6 @@ i am a system too, but we keep info subtle unless close.
 #
 **★ please do not interact if we had beef in the past**
 
-**★ i am 14 years old, please don't be weird to me, it makes me uncomfortable**
 
 **★ i am in the middle of a rough recovery, iwec please!**
 #
