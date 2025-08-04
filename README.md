@@ -1,7 +1,7 @@
 # ────୨ৎ────
 
 
-hi! im cooper:) i am a cscoop fictkin.
+hi! im traves:) i am a supertraves fictkin.
 i am a system too, but we keep info subtle unless close. 
 
  
