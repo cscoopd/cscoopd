@@ -7,7 +7,7 @@ i am a system too, but we keep info subtle unless close.
  
 ╰┈➤  now playing [***hey fucker - kitcaliber***](https://youtu.be/m0hSqSBU1kw?list=RDm0hSqSBU1kw)  ✰  speedcore & digital hardcore enthusiast
 #
-**★ please do not interact if we had beef in the past**
+**★ please do NAWT randomly frq me without talking:((**
 
 
 **★ i am in the middle of a rough recovery, iwec please!**
